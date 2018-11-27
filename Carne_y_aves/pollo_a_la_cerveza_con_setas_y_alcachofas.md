@@ -1,0 +1,3 @@
+El pollo a la cerveza es una de las maneras más deliciosas de prepara el pollo. La cerveza es muy versátil para utilizarla en guisos. Tiene un bajo contenido de alcohol que se evapora en su totalidad durante la cocción y aporta un sabor muy rico, yendo del suave si utilizamos una cerveza rubia, al intenso si la utilizamos negra.
+
+El pollo absorbe muy bien el sabor de la cerveza, por ello hay muchas recetas en la que se utiliza en vez del vino o brandy que le aporta un sabor más seco.
