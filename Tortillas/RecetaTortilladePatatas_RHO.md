@@ -28,3 +28,4 @@ Consejos
 Para no tardar demasiado tiempo picando las patatas, podemos utilizar una mandolina, con lo que conseguiremos que todas las patatas tengan el mismo grosor y se hagan todas de manera uniforme, mucho mejor que si se pican con el cuchillo.
 
 Si hemos picado muy fina la cebolla, echaremos primero la patata a la sartén y unos minutos después agregaremos la cebolla, para que no se nos queme y todo se pueda hacer a la par.
+
