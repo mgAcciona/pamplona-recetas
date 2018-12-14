@@ -1,25 +1,33 @@
 RecetaTortilladePatatas
 =======================
-01. 2Kg. patatas
-02. Algo de aceite
-03. 3 cebollas
-04. 6 huevos
-05. calor
-06. Una pizca de sal
 
-ElaboraciÛn
-Pela y pica la cebolla en dados medianos. Limpiar bien el pimiento verde, retÌrale el tallo y las pepitas y cÛrtalo en dados.
+Elaboraci√≥n
+Pela y pica la cebolla en dados medianos. Limpiar bien el pimiento verde, ret√≠rale el tallo y las pepitas y c√≥rtalo en dados.
+- 800 gramos de patatas (mejor si son nuevas)
+- 175 gramos de cebolla blanca.
+- 7 huevos grandes.
+- Aceite de oliva virgen extra.
+- Sal (a discreci√≥n)
 
-Si las patatas estuvieran sucias, p·salas por agua. PÈlalas, cÛrtalas por la mitad a lo largo y despuÈs corta cada trozo en medias lunas finas de 1/2 centÌmetros.
+Modo de elaboraci√≥n
 
-Introduce todo en la sartÈn, sazona a tu gusto y frÌe a fuego suave durante 25-30 minutos.
+Comenzaremos pelando, lavando y picando las patatas. En este caso podemos cortarlas finas o en daditos peque√±os, como m√°s nos guste. Por otro lado tambi√©n tendremos que pelar la cebolla y picarla.
 
-Retira la fritada y esc˙rrela. Pasa el aceite a un recipiente y resÈrvalo. Limpia la sartÈn con papel absorbente de cocina.
+Pondremos a calentar una sart√©n con abundante aceite de oliva y cuando tenga temperatura incorporaremos las patatas con toda la cebolla picada.
 
-Casca los huevos, colÛcalos en un recipiente grande y b·telos. S·lalos a tu gusto, agrega la fritada de patatas, cebolla y pimiento y mezcla bien.
+Las patatas se ir√°n friendo poco a poco con la cebolla y mientras lo hacen iremos abriendo los huevos, los echaremos en un bol grande y los batiremos y esperaremos a que las patatas y la cebolla est√©n preparadas.
 
-Coloca la sartÈn nuevamente en el fuego, agrega un chorrito del aceite reservado y agrega la mezcla. Remueve un poco con una cuchara de madera y espera (20 segundos) a que empiece a cuajarse.
+Cuando est√©n listas las iremos sacando con una espumadera para escurrir el exceso de aceite y las iremos incorporando poco a poco a los huevos, le echaremos sal al gusto y lo removeremos todo para que se integren todos los ingredientes y la patata baya absorbiendo un poco el huevo.
 
-Separa los bordes, cubre la sartÈn con un plato de mayor di·metro que la sartÈn y dale la vuelta.
+Quitaremos casi todo el aceite de la sart√©n, dejando solo un poco para que la tortilla no se pegue. Echaremos la mezcla del huevo, patatas y cebolla y procuraremos que todo quede bien nivelado.
 
-…chala de nuevo para que cuaje por el otro lado.
+Dejaremos que se haga la parte de abajo y despu√©s le daremos la vuelta ayud√°ndonos con un plato que encaje bien en la circunferencia de la sart√©n o quiz√° un poco m√°s grande, pero no demasiado.
+
+Echaremos la tortilla de nuevo a la sart√©n por la parte que no est√© hecha y la compactaremos bien con un tenedor por los lado, la dejaremos que se haga por esa parte y ya estar√° lista para comer.
+
+Consejos
+
+Para no tardar demasiado tiempo picando las patatas, podemos utilizar una mandolina, con lo que conseguiremos que todas las patatas tengan el mismo grosor y se hagan todas de manera uniforme, mucho mejor que si se pican con el cuchillo.
+
+Si hemos picado muy fina la cebolla, echaremos primero la patata a la sart√©n y unos minutos despu√©s agregaremos la cebolla, para que no se nos queme y todo se pueda hacer a la par.
+
