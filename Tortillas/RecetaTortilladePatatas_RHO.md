@@ -8,7 +8,7 @@ RecetaTortilladePatatas
 06. Una pizca de sal
 
 Elaboración
-Pela y pica la cebolla en dados medianos. Limpia el pimiento verde, retírale el tallo y las pepitas y córtalo en dados.
+Pela y pica la cebolla en dados medianos. Limpiar bien el pimiento verde, retírale el tallo y las pepitas y córtalo en dados.
 
 Si las patatas estuvieran sucias, pásalas por agua. Pélalas, córtalas por la mitad a lo largo y después corta cada trozo en medias lunas finas de 1/2 centímetros.
 
